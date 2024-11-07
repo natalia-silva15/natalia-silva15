@@ -8,13 +8,13 @@ Meu nome é natalia-silva15
 
 ### Você pode entrar em contato comigo 📧
 
+natalia.silva.machado@escola.pr.gov.br
 
 
 
+![](https://github.com/user-attachments/assets/37b98d32-d983-4b2c-858b-e4c990a1ed0b)
 
-![](https://github.com/user-attachments/assets/1e584cab-045e-4320-811a-7ff6c5bb57b5)
-
-
+![](https://media1.tenor.com/m/-qBsG1HwR4oAAAAC/cat-dance-dancing-cat.gif)
 
 
 
